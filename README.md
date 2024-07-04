@@ -1,2 +1,2 @@
 # References
-References for Persian Old language 
+References for Old Persian language 
